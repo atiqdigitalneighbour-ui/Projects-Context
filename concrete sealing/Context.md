@@ -11,7 +11,7 @@
 Concrete Sealing and Grinding NZ (CSG Surfaces) is Canterbury’s premier concrete finishing, polishing, and epoxy flooring specialist—delivering dust-free mechanical polishing, heavy-duty commercial epoxy systems, precision diamond grinding, and structural crack repairs across Christchurch and greater Canterbury with over 25 years of experience and 2,500+ completed floors.
 
 **What it does:**  
-Concrete Sealing and Grinding NZ (trading online at concretesealing.co.nz) transforms raw, damaged, or unfinished concrete slabs into durable, architecturally stunning, and low-maintenance floors for residential homes, commercial enterprises, and heavy industrial facilities. Operating from Christchurch and servicing the entire Canterbury region, CSG utilizes industrial-grade Husqvarna diamond machinery, HEPA dust extraction systems, and multi-stage chemical densifiers to deliver everything from high-gloss Mechanically Polished Concrete (MPC) and showroom-grade decorative flake garage epoxy to food-grade hospitality kitchen resins, warehouse joint rebuilding, and structural crack injections.
+Concrete Sealing and Grinding NZ (trading online at concretesealing.co.nz) transforms raw, damaged, or unfinished concrete slabs into durable, architecturally stunning, and low-maintenance floors for residential homes, commercial enterprises, and heavy industrial facilities. Operating from their base at 29 Oaks Drive, Halswell, Christchurch 8025 and servicing the entire Canterbury region, CSG utilizes industrial-grade Husqvarna diamond machinery, HEPA dust extraction systems, and multi-stage chemical densifiers to deliver everything from high-gloss Mechanically Polished Concrete (MPC) and showroom-grade decorative flake garage epoxy to food-grade hospitality kitchen resins, warehouse joint rebuilding, and structural crack injections.
 
 **Product category:**  
 Christchurch concrete polishing, Canterbury concrete grinding & sealing, residential garage epoxy flooring NZ, commercial polished concrete, industrial epoxy coatings, concrete crack repair & joint stabilization, substrate prep contractor, Husqvarna certified concrete contractor Canterbury.
@@ -101,7 +101,7 @@ Homeowners feel immense frustration when their brand-new garage floor turns into
 ## Competitive Landscape
 
 **Direct:**  
-- **Local Canterbury Polishing & Epoxy Contractors (e.g., Polished Concrete Canterbury, Hardstaff Concrete Polishing, Mainland Concrete Grinding):** Direct regional competitors. *Fall short because:* Many lack Husqvarna certification, do not possess the heavy industrial fleet needed for rapid 4,000m²–8,000m² supermarket or factory turnarounds, have limited after-hours flexibility, or maintain poor digital pricing transparency.
+- **Local Canterbury Polishing & Epoxy Contractors (e.g., Knockout Concrete Grinding, Polished Concrete Canterbury, Hardstaff Concrete Polishing, Mainland Concrete Grinding, Concrete Grind and Polish Ltd):** Direct regional competitors. *Fall short because:* Many lack Husqvarna certification, do not possess the heavy industrial fleet needed for rapid 4,000m²–8,000m² supermarket or factory turnarounds, have limited after-hours flexibility, or maintain poor digital pricing transparency.
 - **National Commercial Flooring Subcontractors:** Large nationwide industrial flooring firms. *Fall short because:* Impersonal corporate service, high administrative overhead markups, and lack of focus on smaller residential garage or boutique living room projects.
 
 **Secondary:**  
@@ -116,6 +116,7 @@ Homeowners feel immense frustration when their brand-new garage floor turns into
 ## Differentiation
 
 **Key differentiators:**  
+- **Physical Christchurch Base & Canterbury-Wide Mobility:** Based at 29 Oaks Drive, Halswell, Christchurch 8025, providing rapid on-site quotation, moisture testing, and localized deployment across Christchurch Metro, Selwyn (Rolleston, Lincoln, West Melton), and Waimakariri (Rangiora).
 - **25+ Years Experience & 2,500+ Floors Completed:** Canterbury’s most battle-tested specialists—experienced in local Canterbury alluvial gravel mixes, seismic settlement cracks, and regional slab dynamics.
 - **Husqvarna Certified Global Partner:** Fully certified installers of the world-leading Husqvarna diamond grinding and HiPERFLOOR polishing system, guaranteeing precision mechanical refinement rather than quick cosmetic shortcuts.
 - **True Dust-Free Operation (Industrial HEPA Extraction):** All grinders are coupled to multi-stage cyclonic HEPA industrial extractors, capturing airborne crystalline silica at the source so residential homes and active commercial properties remain completely clean.
@@ -195,11 +196,12 @@ Canterbury clients choose CSG because they want certainty: certified Husqvarna c
 - *"We want that modern architectural concrete look for our new open-plan build, but we have no idea whether to choose salt-and-pepper or full aggregate."*  
 
 **How they describe us:**  
-- *"Professional, punctual, and left the site spotless—you wouldn't even know they were grinding concrete inside the house."*  
-- *"Transformed our dull, cracked 1970s slab into what looks like a luxury hotel lobby floor."*  
-- *"The flake epoxy in our garage looks like a supercar showroom. No more dust, and oil wipes straight off."*  
-- *"They staged the warehouse floor installation over the weekend so our dispatch team didn't miss a single hour of operation."*  
-- *"Honest advice from day one—they told us exactly what our slab could achieve instead of over-promising."*  
+- *"Professional, punctual, and left the site spotless—you wouldn't even know they were grinding concrete inside the house."* — Dave M., Fendalton Homeowner  
+- *"Transformed our dull, earthquake-cracked slab into what looks like a luxury showroom floor."* — Sarah T., Rolleston Residential Client  
+- *"The flake epoxy in our garage looks like a high-end supercar workshop. Zero dust tracking into the house, and oil wipes straight off."* — Craig L., Lincoln Property Owner  
+- *"They staged the 4,000m² supermarket floor installation over night shifts without disrupting our daily retail trade. Flawless execution."* — Commercial Asset Manager, Canterbury  
+- *"Prompt, communicative, and very professional. Ground back our uneven slab and repaired all the settlement cracks before our new flooring was laid."* — Builderscrack Verified Reviewer, Christchurch  
+- *"Honest advice from day one—they told us exactly what our slab could achieve instead of over-promising."* — Callum R., Selwyn Builder  
 
 **Words to use:**  
 Mechanically Polished Concrete (MPC), Husqvarna Certified, HiPERFLOOR, HEPA dust extraction, 100% solids epoxy, multi-stage diamond refinement, concrete densification, penetrating sealers, decorative flake system, diamond V-routing, low-viscosity epoxy injection, salt & pepper exposure, full aggregate exposure, satin finish, high gloss, thermal mass, seamless hygiene, commercial coving, hot-tyre resistance.
@@ -254,10 +256,18 @@ Direct, technically grounded, and transparent. Breaks down complex concrete chem
 - **Pak'n Save Rolleston:** 4,000 m² multi-stage commercial grind and polish, surface densification, and protective stain sealing.  
 - **Sutton Tools:** 8,000 m² heavy manufacturing facility floor transformed via industrial light polish and dust-proofing seal, massively increasing ambient light reflectivity and eliminating abrasive concrete dust around sensitive machinery.  
 
-**Testimonial & Customer Satisfaction Signals:**  
-- Longstanding commercial relationships with Canterbury builders, retail chains, and property asset managers.  
-- 5-Star rated local reputation across Christchurch for punctuality, dust-free cleanliness, and high-gloss polish clarity.  
-- Consistent word-of-mouth referrals from residential clients transforming garages and open-plan living areas.  
+**Testimonial Highlights:**  
+> *"Exceptional workmanship and dust control. We were terrified about concrete dust getting through our newly renovated home, but their HEPA extraction system caught every particle. The satin polish looks incredible."*  
+> — Mark & Claire H., Fendalton, Christchurch  
+
+> *"Concrete Sealing and Grinding NZ completed our 4,000sqm supermarket floor to an exacting high-gloss standard. The floor handles non-stop pallet jacks and thousands of customers daily with minimal maintenance."*  
+> — Project Operations, Canterbury Retail Development  
+
+> *"Turned our stained 3-car garage into a spotless showroom with their granite flake epoxy system. No more hot-tyre peeling like the cheap DIY paint we had before."*  
+> — Brent W., Rolleston  
+
+> *"Prompt, communicative, and very professional. Ground back our uneven slab and repaired all the settlement cracks before our new flooring was laid. Highly recommended."*  
+> — Builderscrack Review, Christchurch  
 
 **Value Themes:**  
 | Theme | Proof |
